@@ -12,6 +12,7 @@ https://chat.whatsapp.com/I1CSo7xjRLjLHq1SmVuvmd
 https://chat.whatsapp.com/Bg75Wqy6LdjKPNSqmpLK0G
 
 ## Futsal Masculino
+https://chat.whatsapp.com/ByoRPFxgbZi3GSA5sQkn9h
 
 ## Futsal Feminino
 https://chat.whatsapp.com/EtXkrRGajX8IiPM0N8AQsX
